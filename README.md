@@ -5,4 +5,4 @@
 ## Contact me
 ### You can reach me via matias.fernandezbettini@gmail.com and via my LinkedIn profile Matías Ezequiel Fernández Bettini 
 ## skills
-### wowhoooooooooooooooooooooooo
+### I know English (C2)- German (B2) and Swedish (B2-C1)
