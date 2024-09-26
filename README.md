@@ -5,4 +5,4 @@
 ## Contact me
 ### You can reach me via matias.fernandezbettini@gmail.com and via my LinkedIn profile Matías Ezequiel Fernández Bettini 
 ## Hobbies
-### guitar, reading, kayaking
+### Playing guitar, reading, kayaking
